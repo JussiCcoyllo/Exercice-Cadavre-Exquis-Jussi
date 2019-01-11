@@ -16,4 +16,8 @@ Tmbé en amour avec le pays.
 Toutes les conditions étaient réunies pour nous faire passer les mailleurs
 vacances de notre vie.  
 
-Un hotel super propres, des habitants souriants , ...
+Un hotel super propres, des habitants souriants mais beaucoup trop de lama.
+Et oui au Perou il y a énormément de lama.
+Ducoup il faut se protéger contre les crachas de lama sans arret et ça peut rendre les visites compliqué par moment.
+Mais à part ça on y mange super bien.
+
